@@ -13,3 +13,5 @@
  ·͜·♡ ㅤ himefujo ㅤ ♬
  <p align="center">
  <img src="https://files.catbox.moe/9foyuc.webp" width="300">
+ <p align="center">
+ <img src="https://files.catbox.moe/79tgkf.webp" width="450">
