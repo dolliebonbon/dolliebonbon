@@ -1,9 +1,9 @@
 <p align="center"> 
-<img src="https://files.catbox.moe/stziqx.webp" width="400">  
+<img src="https://files.catbox.moe/stziqx.webp" width="450">  
 </p>
 <p align="center"> 
 ꒰ა (//✚ . ^) ໒꒱ 
 <p align="center">
-꒰꒰   luci  ,   18   𓏼𓏫 ͡꒱͏    
+꒰꒰ ㅤㅤ  luci ㅤㅤ ,  ㅤㅤ 18  ㅤㅤ 𓏼𓏫 ͡꒱͏    
 <p align="center">
-🦄  neu terms ㅤㅤ♡ׁ ㅤㅤfem terms   𓏵ྀིྀི
+🦄  neu terms ㅤㅤ♡ׁ ㅤㅤfem terms  ㅤㅤ 𓏵ྀིྀི
