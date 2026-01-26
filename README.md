@@ -9,3 +9,7 @@
 🦄ㅤㅤ  neu terms ㅤㅤ♡ׁ ㅤㅤfem terms  ㅤㅤ 𓏵ྀིྀི
   <p align="center"> 
   <img src="https://files.catbox.moe/opd2cm.png" width="100"> <img src="https://files.catbox.moe/odsq23.png" width="100"> <img src="https://files.catbox.moe/wnwuge.png" width="100">
+<p align="center">
+ ·͜·♡ ㅤ himefujo ㅤ ♬
+ <p align="center">
+ <img src="https://files.catbox.moe/m3h9n6.webp" width="200">
