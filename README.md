@@ -12,4 +12,4 @@
 <p align="center">
  ·͜·♡ ㅤ himefujo ㅤ ♬
  <p align="center">
- <img src="https://files.catbox.moe/m3h9n6.webp" width="200">
+ <img src="https://files.catbox.moe/9foyuc.webp" width="300">
