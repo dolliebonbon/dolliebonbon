@@ -14,4 +14,4 @@
  <p align="center">
  <img src="https://files.catbox.moe/9foyuc.webp" width="300">
  <p align="center">
- <img src="https://files.catbox.moe/79tgkf.webp" width="450">
+ <img src="https://files.catbox.moe/79tgkf.webp" width="300">
