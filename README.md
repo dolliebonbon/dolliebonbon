@@ -12,8 +12,7 @@
 <p align="center">
 🧁ㅤㅤ  neu terms  ㅤㅤㅤ͜♬𓏴 ㅤㅤfem terms  ㅤㅤ 𝄢 
   <p align="center"> 
-  <img src="https://files.catbox.moe/lz4bi8.webp" width="100" <img src="https://files.catbox.moe/28532j.webp" width="100"> <img src="https://files.catbox.moe/23rdge.webp" width="100">
-<p align="center">
+  <img src="https://files.catbox.moe/lz4bi8.webp" width="100"> <img src="https://files.catbox.moe/28532j.webp" width="100"> <img src="https://files.catbox.moe/23rdge.webp" width="100"> 
  ⠀𝅗𝅥” ㅤ himefujo ㅤ 𓉸ྀི
  <p align="center">
  <img src="https://files.catbox.moe/9foyuc.webp" width="300">
