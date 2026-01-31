@@ -4,7 +4,9 @@
 <p align="center">
 <img src="https://github.com/user-attachments/assets/284e45fa-5585-4c48-aa48-ffa325df56ab" width="300">
 <p align="center"> 
-꒰ა (//✚ . ^) ໒꒱ 
+✚ 𓈒⠀ᴗ)
+<p align="center"> 
+<img src="https://files.catbox.moe/ia6igf.jpg" width="200">
 <p align="center">
 ꒰꒰ ㅤㅤ  luci ㅤㅤ ,  ㅤㅤ 18  ㅤㅤ 𓏼𓏫 ͡꒱͏    
 <p align="center">
