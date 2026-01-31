@@ -10,7 +10,7 @@
 <p align="center">
 +  ˚̣̣̣ ㅤ  luciㅤㅤ ,ㅤ 18 ㅤㅤ  ꒰ ੭    
 <p align="center">
-🧁ㅤ  neu terms ㅤㅤ͜♬𓏴 ㅤfem terms ㅤㅤ 𝄢 
+🧁ㅤ  neu terms ㅤㅤ͜♬𓏴 ㅤfem termsㅤ 𝄢 
   <p align="center"> 
   <img src="https://files.catbox.moe/lz4bi8.webp" width="100"> <img src="https://files.catbox.moe/28532j.webp" width="100"> <img src="https://files.catbox.moe/23rdge.webp" width="100"> 
     <p align="center">
