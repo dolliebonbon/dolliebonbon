@@ -1,5 +1,5 @@
 <p align="center"> 
-<img src="https://files.catbox.moe/stziqx.webp" width="350">  
+<img src="https://files.catbox.moe/xz3pn3.webp" width="350">  
 </p>
 <p align="center"> 
 ꒰ა (//✚ . ^) ໒꒱ 
