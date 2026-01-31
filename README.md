@@ -6,7 +6,7 @@
 <p align="center"> 
 ✚ 𓈒⠀ᴗ)
 <p align="center"> 
-<img src="https://files.catbox.moe/ia6igf.jpg" width="200">
+<img src="https://files.catbox.moe/ia6igf.jpg" width="300">
 <p align="center">
 ꒰꒰ ㅤㅤ  luci ㅤㅤ ,  ㅤㅤ 18  ㅤㅤ 𓏼𓏫 ͡꒱͏    
 <p align="center">
