@@ -16,6 +16,6 @@
     <p align="center">
  ⠀𝅗𝅥” ㅤ himefujo ㅤ 𓉸ྀི
  <p align="center">
- <img src="https://files.catbox.moe/9foyuc.webp" width="300">
+ <img src="https://files.catbox.moe/b1pt4h.png" width="300">
  <p align="center">
  <img src="https://files.catbox.moe/79tgkf.webp" width="350">
