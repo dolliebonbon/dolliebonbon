@@ -3,7 +3,6 @@
 </p>
 <p align="center">
 <img src="https://github.com/user-attachments/assets/284e45fa-5585-4c48-aa48-ffa325df56ab" width="200">
-" width="100">
 <p align="center"> 
 ꒰ა (//✚ . ^) ໒꒱ 
 <p align="center">
