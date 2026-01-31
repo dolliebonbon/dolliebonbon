@@ -1,6 +1,8 @@
 <p align="center"> 
 <img src="https://files.catbox.moe/xz3pn3.webp" width="350">  
 </p>
+<p align="center">
+<img src="https://files.catbox.moe/9411zq.png" width="200">
 <p align="center"> 
 ꒰ა (//✚ . ^) ໒꒱ 
 <p align="center">
