@@ -2,7 +2,7 @@
 <img src="https://files.catbox.moe/xz3pn3.webp" width="350">  
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/9411zq.png" width="100">
+<img src="https://files.catbox.moe/b20isw.png" width="100">
 <p align="center"> 
 ꒰ა (//✚ . ^) ໒꒱ 
 <p align="center">
