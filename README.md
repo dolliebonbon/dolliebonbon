@@ -4,7 +4,7 @@
 <p align="center">
 <img src="https://github.com/user-attachments/assets/386c16da-6148-4270-892c-37e675466479" width="400">
 <p align="center"> 
-${\color{#CA9BF7}neu \space terms ㅤㅤ\space 𓏵۪۪༢ㅤㅤ \space fem \space termsㅤㅤ \space (♬ ᵔ ᵔ) \space}$
+${\color{#CA9BF7}neu \space terms ㅤㅤ\spaceㅤㅤ 𓏵۪۪༢ㅤㅤ \space fem \space termsㅤㅤ \space (♬ ᵔ ᵔ) \space}$
 <p align="center">
 𓏲𝄢
 <p align="center">
