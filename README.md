@@ -25,7 +25,6 @@ ${\color{#89CFF0}𓏲𝄢}$
  <img src="https://github.com/user-attachments/assets/050250d3-f436-4b4f-916d-d64fae5a3a5d" width="100"><img src="https://64.media.tumblr.com/daf201fb6b4de96878b52596f5049798/27548220d4925908-aa/s100x200/09df2f151dd2ee632ecd3c914f4bfca0f87a7514.gifv" width="100">
 <p align="center"> 
 <img src="https://github.com/user-attachments/assets/386c16da-6148-4270-892c-37e675466479" width="400">  
-</p>
 <p align="center">
 <img src="https://64.media.tumblr.com/4ef4fa68d9bfbd3189c1015680743342/10876e85d05d36b2-55/s2048x3072/6698c82557df124aefea4b7bbda4319b2eca0a72.pnj" width="450">
 
