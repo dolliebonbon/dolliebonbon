@@ -4,7 +4,7 @@
 <p align="center">
 <img src="https://github.com/user-attachments/assets/386c16da-6148-4270-892c-37e675466479" width="400">
 <p align="center"> 
-${\color{purple}we hear the wilderness and it hears us\space Roxo}$
+${\color{purple}we/spacehear/spacethe/spacewilderness/spaceand/spaceit/spacehears/spaceus\space}$
 (¬ ´ཀ` )¬
 <p align="center"> 
 <img src="https://files.catbox.moe/ia6igf.jpg" width="300">
