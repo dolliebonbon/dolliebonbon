@@ -12,7 +12,7 @@ neu termsㅤ  𓏵۪۪༢ㅤ ⠀fem termsㅤ(♬ ᵔ ᵔ)
 <p align="center">
 <img src="https://github.com/user-attachments/assets/df372b79-349f-417f-8756-b74643acdf94" width="100"> <img src="https://files.catbox.moe/pdca1y.webp" width="100"> <img src="https://files.catbox.moe/fb3k31.png" width="100"> <img src="https://files.catbox.moe/ay3dwp.png" width="100"> <img src="https://files.catbox.moe/odsq23.png" width="100"> <img src="https://files.catbox.moe/9iudpn.webp" width="100">
 <p align="center"> 
-<img src="https://files.catbox.moe/wsmpw0.png" width="100"> <img src="https://files.catbox.moe/a8mshd.webp" width="100"> <img src="https://files.catbox.moe/iv4wo6.webp" width="100"> <img src="https://files.catbox.moe/ymf5xp.jpg" width="100">
+<img src="https://files.catbox.moe/wsmpw0.png" width="100"> <img src="https://files.catbox.moe/a8mshd.webp" width="100"> <img src="https://files.catbox.moe/iv4wo6.webp" width="100"> 
 <p align="center"> 
 <img src="https://files.catbox.moe/88h9fh.png" width="100"> <img src="https://files.catbox.moe/ymf5xp.jpg" width="100">
 
