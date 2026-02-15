@@ -10,7 +10,7 @@ ${\color{#CA9BF7}we \space hear \space the \space wilderness \space and \space i
 <p align="center">
 neu termsㅤ  𓏵۪۪༢ㅤ ⠀fem termsㅤ(♬ ᵔ ᵔ)
 <p align="center">
-<img src="https://github.com/user-attachments/assets/df372b79-349f-417f-8756-b74643acdf94" width="100"> <img src="https://files.catbox.moe/pdca1y.webp" width="100">
+<img src="https://github.com/user-attachments/assets/df372b79-349f-417f-8756-b74643acdf94" width="100"> <img src="https://files.catbox.moe/pdca1y.webp" width="100"> <img src="https://files.catbox.moe/iv4wo6.webp" width="100">
 
 
  
