@@ -8,13 +8,13 @@ ${\color{blue}we \space hear \space the \space wilderness \space and \space it \
 <p align="center">
 𓏲𝄢
 <p align="center">
-   neu terms 𓏵۪۪༢⠀fem termsㅤ(♬ ᵔ ᵔ) 
+neu termsㅤ  𓏵۪۪༢ㅤ ⠀fem termsㅤ(♬ ᵔ ᵔ) 
 <p align="center"> 
 <img src="https://files.catbox.moe/ia6igf.jpg" width="300">
 <p align="center">
-+  ˚̣̣̣ ㅤ  luciㅤㅤ ,ㅤ 18 ㅤㅤ  ꒰ ੭    
+
 <p align="center">
-🧁ㅤ  neu terms ㅤㅤ͜♬𓏴 ㅤfem termsㅤ 𝄢 
+
   <p align="center"> 
   <img src="https://files.catbox.moe/lz4bi8.webp" width="100"> <img src="https://files.catbox.moe/28532j.webp" width="100"> <img src="https://files.catbox.moe/23rdge.webp" width="100"> 
     <p align="center">
