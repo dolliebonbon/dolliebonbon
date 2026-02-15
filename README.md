@@ -20,6 +20,5 @@ neu termsㅤ  𓏵۪۪༢ㅤ ⠀fem termsㅤ(♬ ᵔ ᵔ)
 <p align="center">
 <img src="https://files.catbox.moe/6g94h3.webp" width="100"> <img src="https://files.catbox.moe/m7sr21.webp" width="100">
  <p align="center">
-  <img src="https://files.catbox.moe/j57zkc.webp" width="100">
-
+  <img src="https://files.catbox.moe/ddgj5n.webp" width="100">
  
