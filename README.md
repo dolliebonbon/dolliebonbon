@@ -8,7 +8,7 @@ ${\color{blue}we \space hear \space the \space wilderness \space and \space it \
 <p align="center">
 𓏲𝄢
 <p align="center">
-   neu terms ㅤ𓏵۪۪༢⠀ㅤfem termsㅤ(♬ ᵔ ᵔ) 
+   neu terms 𓏵۪۪༢⠀fem termsㅤ(♬ ᵔ ᵔ) 
 <p align="center"> 
 <img src="https://files.catbox.moe/ia6igf.jpg" width="300">
 <p align="center">
