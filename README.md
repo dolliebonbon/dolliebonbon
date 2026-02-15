@@ -20,7 +20,7 @@ ${\color{#89CFF0}𓏲𝄢}$
  <p align="center">
   <img src="https://files.catbox.moe/ddgj5n.webp" width="100"> 
   <p align="center">
-<img src="https://files.catbox.moe/rl6xlj.webp" width="100"> <img src="https://github.com/user-attachments/assets/8ba94287-5f20-4ef5-846b-aa84d61014c9" width="100"> <img src="https://github.com/user-attachments/assets/a2ef06be-8ef7-45b7-8464-b26bfba9fd13" width="100"> <img src="https://github.com/user-attachments/assets/f13f4ca6-3420-4f34-8ba0-2dcf0a5b792b" width="100"> <img src="https://64.media.tumblr.com/42a054347688e26fc3ac4d2af4c79aa2/c10e2667b8f5f9b7-bf/s100x200/110e95da0a3015db9b9656891292a8e9b2adcd3a.pnj" width="100">
+<img src="https://files.catbox.moe/rl6xlj.webp" width="100"> <img src="https://github.com/user-attachments/assets/8ba94287-5f20-4ef5-846b-aa84d61014c9" width="100"> <img src="https://github.com/user-attachments/assets/a2ef06be-8ef7-45b7-8464-b26bfba9fd13" width="100"> <img src="https://github.com/user-attachments/assets/d1685830-57e7-441c-a673-5395227445fa" width="100"> <img src="https://64.media.tumblr.com/42a054347688e26fc3ac4d2af4c79aa2/c10e2667b8f5f9b7-bf/s100x200/110e95da0a3015db9b9656891292a8e9b2adcd3a.pnj" width="100">
  <p align="center">
  <img src="https://github.com/user-attachments/assets/050250d3-f436-4b4f-916d-d64fae5a3a5d" width="100"><img src="https://64.media.tumblr.com/daf201fb6b4de96878b52596f5049798/27548220d4925908-aa/s100x200/09df2f151dd2ee632ecd3c914f4bfca0f87a7514.gifv" width="100">
 <p align="center"> 
