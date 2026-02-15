@@ -4,11 +4,9 @@
 <p align="center">
 <img src="https://github.com/user-attachments/assets/386c16da-6148-4270-892c-37e675466479" width="400">
 <p align="center"> 
-${\color{#CA9BF7}we \space hear \space the \space wilderness \space and \space it \space hears \space us \space ♫}$
+${\color{#CA9BF7}neu \space terms \space 𓏵۪۪༢ \space fem \space terms \space (♬ ᵔ ᵔ) \space}$
 <p align="center">
 𓏲𝄢
-<p align="center">
-neu termsㅤ  𓏵۪۪༢ㅤ ⠀fem termsㅤ(♬ ᵔ ᵔ)
 <p align="center">
 <img src="https://github.com/user-attachments/assets/df372b79-349f-417f-8756-b74643acdf94" width="100"> <img src="https://files.catbox.moe/pdca1y.webp" width="100"> <img src="https://files.catbox.moe/fb3k31.png" width="100"> <img src="https://files.catbox.moe/ay3dwp.png" width="100"> <img src="https://files.catbox.moe/odsq23.png" width="100"> <img src="https://files.catbox.moe/9iudpn.webp" width="100">
 <p align="center"> 
