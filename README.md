@@ -16,6 +16,6 @@ neu termsㅤ  𓏵۪۪༢ㅤ ⠀fem termsㅤ(♬ ᵔ ᵔ)
 <p align="center">
 <img src="https://files.catbox.moe/88h9fh.png" width="100"> <img src="https://files.catbox.moe/clhs9r.webp" width="100"> <img src="https://files.catbox.moe/cpfnbh.webp" width="100">  <img src="https://files.catbox.moe/vih0ba.jpg" width="100">
 <p align="center">
-<img src="https://files.catbox.moe/zjnkkn.webp" width="100"> <img src="https://files.catbox.moe/vvxsyv.png" width="100"> <img src="https://files.catbox.moe/vvtqty.jpg" width="100"> <img src="https://files.catbox.moe/rqpul4.webp" width="100"> <img src="https://files.catbox.moe/sfuiav.webp" width="100"> <img src="https://files.catbox.moe/2eleqm.gif" width="100">
+<img src="https://files.catbox.moe/zjnkkn.webp" width="100"> <img src="https://files.catbox.moe/vvxsyv.png" width="100"> <img src="https://files.catbox.moe/vvtqty.jpg" width="100"> <img src="https://files.catbox.moe/rqpul4.webp" width="100"> <img src="https://files.catbox.moe/sfuiav.webp" width="100"> <img src="https://files.catbox.moe/zjnkkn.webp" width="100">
 
  
