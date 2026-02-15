@@ -20,7 +20,8 @@ ${\color{#CA9BF7}neuㅤㅤ \space terms ㅤ\spaceㅤㅤ 𓏵۪۪༢ㅤㅤ \space
  <p align="center">
   <img src="https://files.catbox.moe/ddgj5n.webp" width="100"> 
   <p align="center">
- <img src="https://files.catbox.moe/rl6xlj.webp" width="100"> <img src="https://github.com/user-attachments/assets/8ba94287-5f20-4ef5-846b-aa84d61014c9" width="100"> <img src="https://github.com/user-attachments/assets/0104a343-af34-4e11-9fec-a179132ec747" width="100"> <img src="https://github.com/user-attachments/assets/b0abfdf2-d0a4-43fd-8ad4-4d57cece4400" width="100">
+ <img src="https://files.catbox.moe/rl6xlj.webp" width="100"> <img src="https://github.com/user-attachments/assets/8ba94287-5f20-4ef5-846b-aa84d61014c9" width="100"> <img src="https://github.com/user-attachments/assets/0104a343-af34-4e11-9fec-a179132ec747" width="100"> <img src="https://github.com/user-attachments/assets/f13f4ca6-3420-4f34-8ba0-2dcf0a5b792b" width="100">
+
 
 
 
