@@ -4,7 +4,7 @@
 <p align="center">
 <img src="https://github.com/user-attachments/assets/386c16da-6148-4270-892c-37e675466479" width="400">
 <p align="center"> 
-${\color{purple}we \space hear \space the \space wilderness \space and \space it \space hears \space us \space ♫}$
+${\color{blue}we \space hear \space the \space wilderness \space and \space it \space hears \space us \space ♫}$
 
 (¬ ´ཀ` )¬
 <p align="center"> 
