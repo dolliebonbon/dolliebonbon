@@ -7,4 +7,4 @@
  <p align="center">
   <img src="https://github.com/user-attachments/assets/c4dfec5f-b8cd-4246-9cbe-0f16e3b1f703" width="400">
   <p align="center">
-<sub><sup>amora   ㅤ ${\color{#D1B3FF} ♡ ～('▽^人)}$  ㅤㅤluci</sup></sub><img src="https://github.com/user-attachments/assets/83672ee6-a443-44fe-8a37-ac62e8796b5a" width="20">
+<sub><sup>amora   ㅤ ${\color{#D1B3FF} ♡ ～('▽^人)}$  ㅤㅤluci</sup></sub>  ㅤ<img src="https://github.com/user-attachments/assets/1fc5ca36-1a1a-4791-843b-2c0fe562d767" width="20">
