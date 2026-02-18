@@ -14,6 +14,6 @@
 <p align="center">
   <br>
   <a href=https://dollimiette.atabook.org/><sub>atabook</sub></a>
-  &nbsp;  &nbsp;
+  &nbsp;  &nbsp; <3
   <a href=https://en.pronouns.page/@lalis><sub>prns</sub></a>
 </p>
