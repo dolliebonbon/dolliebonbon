@@ -6,3 +6,5 @@
 
  <p align="center">
   <img src="https://github.com/user-attachments/assets/c4dfec5f-b8cd-4246-9cbe-0f16e3b1f703" width="400">
+  <p align="center">
+  𐔌͡  ㅤ amora   ㅤ ♡ ～('▽^人) ㅤ ㅤluci
