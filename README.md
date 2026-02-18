@@ -2,9 +2,10 @@
 <br>
 <br>
  <p align="center">
-<img src="https://github.com/user-attachments/assets/a8532634-5b31-4ce1-97f4-364c5bc235aa"  width="50">
-
- <p align="center">
+<img src="https://files.catbox.moe/5jcnb3.webp"  width="50">
+<br>
+<br>
+<p align="center">
   <img src="https://github.com/user-attachments/assets/c4dfec5f-b8cd-4246-9cbe-0f16e3b1f703" width="400">
   <p align="center">
 <sub><sup>amora   ㅤ ${\color{#D1B3FF} ♡ ～('▽^人)}$  ㅤㅤluci</sup></sub>  ㅤ<img src="https://github.com/user-attachments/assets/1fc5ca36-1a1a-4791-843b-2c0fe562d767" width="20">
