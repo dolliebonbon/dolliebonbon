@@ -12,9 +12,4 @@
 <P align="center">
 <img src="https://64.media.tumblr.com/9be57c2c5dc57ad97fe1ae49f4d3d8ae/4784c5d213c82cbd-0f/s75x75_c1/98e36ff65abcfdc26ba4b93b012eb917e2f7865d.gifv" width="20" > ㅤㅤ <sub><sup>himefujoshi ㅤ ${\color{#D1B3FF} ♡ }$ ㅤㅤㅤ<b>disordered</b>ㅤㅤ♪⠀⠀♫
 <p align="center">
-  <a href="https://dollimiette.atabook.org">
-    </a>
-  &nbsp;&nbsp;
-  <a href="https://en.pronouns.page/@lalis">
-  </a>
-</p>
+  <[prns.en] (https://en.pronouns.page/@lalis)
