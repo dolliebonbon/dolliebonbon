@@ -10,7 +10,7 @@
   <p align="center">
 <sub><sup>amora   ㅤ ${\color{#D1B3FF} ♡ ～('▽^人)}$  ㅤㅤluci</sup></sub>  ㅤ<img src="https://github.com/user-attachments/assets/53fa1ec6-6a90-4066-8c51-7cbcebe83c54" width="20">
 <P align="center">
-<img src="https://github.com/user-attachments/assets/63e6ceb2-699c-4cf6-9604-1c707c8d8ef5" width="20" > ㅤㅤ <sub><sup>himefujoshi ㅤ ${\color{#D1B3FF} ♡ }$ ㅤㅤㅤ<b>disordered</b>ㅤㅤ♪⠀⠀♫
+<img src="https://github.com/user-attachments/assets/b779f405-19cb-43fc-81fa-d9baa122780e"  width="20" > ㅤㅤ <sub><sup>himefujoshi ㅤ ${\color{#D1B3FF} ♡ }$ ㅤㅤㅤ<b>disordered</b>ㅤㅤ♪⠀⠀♫
 <p align="center">
   <br>
   <a href=https://dollimiette.atabook.org/><sub>atabook</sub></a>
